@@ -1,5 +1,5 @@
 # hello-world
 just for getting started
 
-yes i'm learning slower but still learning new things daily...
-how does a pig say--onk!!:) hihi....
+
+
